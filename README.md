@@ -1,1 +1,0 @@
-# standart80zm9
